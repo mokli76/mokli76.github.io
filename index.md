@@ -6,3 +6,18 @@ die von einem alten krebskranken Opi auserwählt wurden. Ziel von Billys
 Todesspielen ist es, den Menschen moralische Prinzipien vor Augen zu
 führen.
 
+## Horrorshow
+
+* grausam
+* gruselig
+* gemein
+* gewalttätig
+* gefährlich
+* grauenhaft
+* ganz böse
+
+As Billy said:
+
+> Hello, I want to play a game.
+
+
